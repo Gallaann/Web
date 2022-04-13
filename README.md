@@ -1,1 +1,3 @@
-Here will be the result of 7 homework on the "web" discipline
+Second HW
+
+Немного не успеваю сделать 3 задание, потому что поздно приступил к решению, так как только недавно сдал экзамен по физике ((
